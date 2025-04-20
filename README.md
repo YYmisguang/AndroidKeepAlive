@@ -86,8 +86,6 @@
 
 请注明来意，根据以下联系方式获取：
 
-![weixi![wx.jpg.jpg](..%2F..%2FDesktop%2Fwx.jpg.jpg)n](wx.jpg)
-
 > 邮箱：2227861032@qq.com
 > 
 > telegram(需要科学上网)：https://t.me/androidkeepalive
